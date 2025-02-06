@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Pankz
 - 👀 I’m interested in coding,gaming and all kinds of techs
-- 🌱 I’m currently learning about programming and everthing about it.
+- 🌱 I’m currently learning about programming and working on my skills.
 - 💞️ I’m looking to collaborate on any kind of project from which i can learn more.
 - 📫 How to reach me ...
 - 😄 Pronouns: he/him
